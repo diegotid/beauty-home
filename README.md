@@ -9,4 +9,7 @@ Stack for a full beauty home services digital business under the [GNU GPLv3](/LI
 
 > **Note**: Use of the Mollow brand shown on this clip is unlicensed and belongs to a project from which this software was unlinked
 
-https://user-images.githubusercontent.com/63637923/147427104-9e1ea08c-c489-4160-b6ed-66f5eac208bf.mp4
+
+
+https://user-images.githubusercontent.com/63637923/147515264-7f9b9e0e-1c09-46f5-8a13-6b3f16ed4430.mp4
+
